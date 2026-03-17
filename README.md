@@ -1,6 +1,6 @@
-<img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/691d778b-0a28-429a-bf52-e73710a0646b" />
+<img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/ee222aff-600e-4da7-8041-96ecf28af640" />
 
-‧˚꒰🐾୭ ˚. ᵎᵎ andrew ou brandon      ˎˊ˗
+‧˚꒰🐾୭ ˚. ᵎᵎ atlas ou kashton      ˎˊ˗
 
    taken  ゛ ⸝⸝.ᐟ⋆  *14*
    
