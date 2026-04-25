@@ -5,3 +5,5 @@
    taken  ゛ ⸝⸝.ᐟ⋆  *14*
    
 ⋮ ⌗ ┆   osdd , audhd , bpd    ᶻ 𝗓 𐰁
+
+   err i speak english and rusty tagalog bare with me
