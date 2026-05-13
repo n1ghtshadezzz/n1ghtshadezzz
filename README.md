@@ -1,11 +1,10 @@
-<img width="250" height="250" alt="Image" src="https://github.com/user-attachments/assets/c7a28298-9b14-4240-a10c-bfccb78087d3" />
+<img width="400" height="225" alt="Image" src="https://github.com/user-attachments/assets/43483b3b-2868-4864-8793-b862d23dec33" />
 
-‧˚꒰ <3 ୭ ˚. ᵎᵎ atlas ou azure      ˎˊ˗
-
+‧˚꒰ <3 ୭ ˚. ᵎᵎ **amarah**   atlas   azure
    taken  ゛ ⸝⸝.ᐟ⋆  *14*
    
 ⋮ ⌗ ┆   osdd , audhd , bpd    ᶻ 𝗓 𐰁
 
    err i speak english and rusty tagalog bare with me
 
-   azures no.1 fan and azure irl :: other ppl w/ these title's please block me
+   amarah kin , azures n1 fan :: dbls dniuf/dniuid
